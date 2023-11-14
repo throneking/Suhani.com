@@ -1,2 +1,2 @@
-# Suhanni.com
-By Orchids The International Scool 
+# Suhani.com
+By Orchids The International School 
